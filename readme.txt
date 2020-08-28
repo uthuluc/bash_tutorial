@@ -5,3 +5,5 @@ I cannot think or comprehend of anything more cucked than having a daughter. Hon
 Raised the perfect girl? Great. Who benefits? If you're lucky, a random man who had nothing to do with the way she grew up, who marries her. He gets to fuck her tight pussy every night. He gets the benefits of her kind and sweet personality that came from the way you raised her.
 
 As a man who has a daughter, you are LITERALLY dedicating at least 20 years of your life simply to raise a girl for another man to enjoy. It is the ULTIMATE AND FINAL cuck. Think about it logically
+
+The only thing more cucked than having one daughter is having five daughters. Not two, not three, not even four, but five.
